@@ -1,0 +1,1 @@
+Place sanitized project screenshots here. Do not upload screenshots containing private or sensitive data.
